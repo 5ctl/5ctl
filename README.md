@@ -8,7 +8,7 @@
 <br>
  ⎯ ㅤ𝗍Ჩeყㅤ .  ᰰ  ׅ ៹ ‌፝֟
 <br>
-֖₍𐍷 ֕ ִׄㅤ֥𐍷₎<a href="https://frail.bio/w9"> ꠥ</a>
+֖₍𐍷 ֕ ִׄㅤ֥𐍷₎<a href="https://frail.bio/ya"> ꠥ</a>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
