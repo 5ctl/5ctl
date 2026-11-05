@@ -4,7 +4,7 @@
 <body>
 
 <p align="center">
-<p align="center"><img src="https://64.media.tumblr.com/d05b6de8fd5cfca191491171475a1e58/21a3d5ff4995189b-df/s75x75_c1/05fb2ecbce2dfdedef88f6f792d963acc8f0fcb9.gifv" width="15" />ㅤ ۫ ֹ  ݂ㅤყα𝗍𝗍α
+<p align="center"><img src="https://64.media.tumblr.com/f1f72bed3fcac00ecf57249a3faa3f91/4f4fd2583834deaf-3e/s75x75_c1/8604d096b278d852eaa73f727007289767ef4670.gifv" width="15" />ㅤ ۫ ֹ  ݂ㅤყα𝗍𝗍α
 <br>
  ⎯ ㅤ𝗍Ჩeყㅤ .  ᰰ  ׅ ៹ ‌፝֟
 <br>
